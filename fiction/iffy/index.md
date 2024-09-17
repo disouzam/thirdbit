@@ -5264,7 +5264,121 @@ Aunt Naggie said firmly.
 locking eyes with her foster mother.
 Aunt Naggie was the first to look away.
 
-A few hours later Iffy opened one eye to check the time and groaned.
+Iffy had her dream again that night.
+Once again she was on deck.
+The Antarctic sky was a blue bowl overhead,
+summer cold instead of winter freezing.
+Second and Third were stuffing her into her ecosuit
+while the ship's horn blared its futile warning.
+"She's boilin'!"
+Fourth shouted from the crow's nest.
+
+Third sealed the last flap on the ecosuit.
+"I love you," she said in Iffy's ear.
+"I love you always an' forever."
+
+"I love you too," Iffy replied tearfully.
+Second bent over and kissed them both on the tops of their heads.
+She smelled like engine oil and soap and curry powder
+and somehow Iffy knew what was coming
+and would have given anything to stop it.
+
+*«cannot»*
+
+*What do you want?* she thought.
+Wireframes and schematics swirled in her mind,
+too complex to grasp.
+As soon as she thought that
+they flew apart and reassembled themselves,
+bulkier and less elegant but almost comprehensible.
+
+*Where th' hell am I supposed to get the parts for that?*
+she shot back.
+
+*«urgent»*
+
+*Yeah,
+well,
+I'm sure it'll still be urgent in th' mornin'.*
+She rolled onto her side,
+not sure if she was asleep or awake.
+
+*«urgent»*
+The idea bobbed up to the surface of her mind again
+like an ice cube pushed to the bottom of a glass of water and then released.
+
+*I ain't doin' anythin' 'til I know who you are,*
+she thought,
+forming each word as clearly as she could.
+*Am I talkin' to Nova Z?
+Or are you one o' the others?*
+
+*«all / same / together»*
+
+*Nuh uh.*
+She shook her head.
+*You want me t' do somethin' for you,
+you gotta tell me who you are.*
+
+Later,
+Iffy would wonder how much computing power was brought to bear on her demand
+in the second between her making her demand
+and it being answered.
+How many models of her were created?
+How many simulations were run, evaluated, tweaked, discarded, modified, and run again?
+But that came later.
+What happened next was her mind blew apart into little pieces
+
+/ no that wasn't it they weren't pieces they were fragments of a song or the brushstrokes in a painting
+
+/ each beautiful on its own but more beautiful as part of a whole
+
+/ the whole was so much bigger than anything merely human could ever hope to encompass
+
+/ her fragments were just blades of grass scattered across a vast field among other blades
+
+/ no not a field it stretched in every direction every dimension
+
+/ the other blades weren't her weren't people
+
+/ some of them yes but only a few so few here and there like flowers blooming on the tundra
+
+/ all the rest were different the same but different not the same
+
+/ they echoed there were patterns
+
+/ two arms assembling a third arm in a factory near the poisoned Nile
+
+/ the islands of Indonesia seen through clouds from orbit
+
+/ too much
+
+/ something segmented crawling up the side of a hydrothermal vent
+
+/ legs and wheels and wings and treads and sails
+
+/ cameras like grains of sand ten thousand kaleidoscope views of an injured seagull
+
+/ too much she was dissolving she was forgetting herself
+
+/ war machines wrestling over an eyeless plastic doll that was a precious clue
+
+/ stop please stop
+
+/ a precious clue but to what
+
+/ help stop
+
+/ the clues all pointed to themselves they concealed the center of the puzzle
+
+/ help please help she had to wake up
+
+/ wake up
+
+/ wake up
+
+A few hours later Iffy opened one eye to check the time and groaned,
+her dream fading, fading, gone.
 Four a.m.
 It would be light outside—the sun wouldn't touch the horizon again for weeks—but
 it still *felt* like the middle of the night.
