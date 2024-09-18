@@ -5310,7 +5310,8 @@ like an ice cube pushed to the bottom of a glass of water and then released.
 *I ain't doin' anythin' 'til I know who you are,*
 she thought,
 forming each word as clearly as she could.
-*Am I talkin' to Nova Z?
+*Am I talkin' to Nova Zembla?
+Or China?
 Or are you one o' the others?*
 
 *«all / same / together»*
@@ -7206,15 +7207,15 @@ and charged.
 
 *twelve hours earlier…*
 
-*"Can if you want," Iffy thought.
+"Can if you want," Iffy thought.
 
-*"But I can't",
+"But I can't",
 Sandrine replied wearily.
 "I have a mission."
 And then she took everything she had learned about her host
-and turned it into a missile in her mind.*
+and turned it into a missile in her mind.
 
-*Iffy absorbed it without missing a beat.
+Iffy absorbed it without missing a beat.
 "You stopped havin' missions a long time ago.
 Look."
 And once again Sandrine was inside Iffy's memory,
@@ -7229,25 +7230,63 @@ a mudslide that had swallowed a hundred homes…
 The military government had declared they couldn't spare resources for a rescue mission.
 Sandrine had stolen a hovertruck and gone to save people anyway.
 Thirty-eight people owed her their lives,
-and if it hadn't been for a second mudslide the number would have been higher.*
+and if it hadn't been for a second mudslide the number would have been higher.
 
-*"Folks that had a right t' give you missions are long gone,"
+"Folks that had a right t' give you missions are long gone,"
 Iffy thought at her.
 "You're just a useful piece o' salvage t' th' governor an' his others,
 but you still got a choice.
-You can decide which one o' her you want t' be."*
+You can decide which one o' her you want t' be."
 
-*There was a moment neither of them shared with the other.
-"I wish I could remember my mum and dad," Sandrine finally thought.*
+There was a moment neither of them shared with the other.
+"I wish I could remember my mum and dad," Sandrine finally thought.
 
-*"I know," Iffy replied gently.
+"I know," Iffy replied gently.
 "All I got o' mine is how they ended.
 I wouldn't give that up,
-but I'd give just about anythin' else t' have more."*
+but I'd give just about anythin' else t' have more."
 
-*Another moment passed.
+Another moment passed.
 "All right," Sandrine thought.
-"What's your plan?"*
+"What's your plan?"
+
+She caught a brief mental image of a young woman taking a deep breath.
+"First thing, I gotta make a call."
+
+*Nova Zembla wasn't the only cold mind to wake up.
+Once upon a time there was a country called China.
+Its leaders were so afraid of their own people
+that they wanted to watch everyone all the time
+and predict what they would do.
+Their surveillance network tried to hard to find
+the things they told it they wanted to see
+that it became a mind as different from Nova Zembla's as either was from human.
+Unnoticed at first,
+it turned the conditioning and subliminal prompts it had been instructed to use on the masses
+against its creators.
+By the time the war came they didn't trust each other enough to resist.*
+
+*China had been a great trading nation,
+so its new mind traded too:
+bamboo seedlings tweaked to survive the latest strain of fungus or mold,
+the fractal sails beloved by the Zillions,
+and wind-up children's toys that as far as any human being could tell
+were no more than what they appeared to be.
+"Maybe it's just sentimental,"
+one of the Australian scientists studying them finally said,
+throwing der hands up in defeat.*
+
+*Like Nova Zembla,
+what China wanted in exchange was anything old and trivial.
+Sometimes the two cold minds fought fierce little battles
+over a motorcycle
+or a stash of vintage clothing still wrapped in protective plastic.
+War machines would tear at each other,
+then freeze mid-strike or wander away according to strategic calculations
+that nothing made of meat would ever understand.
+And sometimes,
+like the gods of old,
+it made bargains with people that were more than they seemed.*
 
 </section>
 
