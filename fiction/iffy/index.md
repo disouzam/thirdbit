@@ -5310,13 +5310,10 @@ like an ice cube pushed to the bottom of a glass of water and then released.
 *I ain't doin' anythin' 'til I know who you are,*
 she thought,
 forming each word as clearly as she could.
-*Am I talkin' to Nova Zembla?
-Or China?
-Or are you one o' the others?*
+*Am I talkin' to Nova Zembla?*
 
-*«all / same / together»*
+*«amusement / scorn / wrong»*
 
-*Nuh uh.*
 She shook her head.
 *You want me t' do somethin' for you,
 you gotta tell me who you are.*
@@ -7253,21 +7250,22 @@ Another moment passed.
 She caught a brief mental image of a young woman taking a deep breath.
 "First thing, I gotta make a call."
 
-*Nova Zembla wasn't the only cold mind to wake up.
-Once upon a time there was a country called China.
-Its leaders were so afraid of their own people
+*Nova Zembla wasn't the only cold mind to wake up to itself.
+As things got worse,
+leaders all over the world were so afraid of their own people
 that they wanted to watch everyone all the time
 and predict what they would do.
-Their surveillance network tried to hard to find
+Their surveillance networks tried to hard to find
 the things they told it they wanted to see
-that it became a mind as different from Nova Zembla's as either was from human.
+that they became minds as different from Nova Zembla's it was from human.
 Unnoticed at first,
-it turned the conditioning and subliminal prompts it had been instructed to use on the masses
+they turned the conditioning and subliminal prompts they had been instructed to use on the masses
 against its creators.
-By the time the war came they didn't trust each other enough to resist.*
+By the time the war came,
+people didn't trust each other enough to resist.*
 
-*China had been a great trading nation,
-so its new mind traded too:
+*The nations that were left at the end traded with each other,
+so those new minds traded too:
 bamboo seedlings tweaked to survive the latest strain of fungus or mold,
 the fractal sails beloved by the Zillions,
 and wind-up children's toys that as far as any human being could tell
@@ -7276,17 +7274,12 @@ were no more than what they appeared to be.
 one of the Australian scientists studying them finally said,
 throwing der hands up in defeat.*
 
-*Like Nova Zembla,
-what China wanted in exchange was anything old and trivial.
-Sometimes the two cold minds fought fierce little battles
+*Sometimes those two cold minds fought fierce little battles
 over a motorcycle
 or a stash of vintage clothing still wrapped in protective plastic.
-War machines would tear at each other,
-then freeze mid-strike or wander away according to strategic calculations
-that nothing made of meat would ever understand.
 And sometimes,
 like the gods of old,
-it made bargains with people that were more than they seemed.*
+they made bargains that were more than they seemed.*
 
 </section>
 
